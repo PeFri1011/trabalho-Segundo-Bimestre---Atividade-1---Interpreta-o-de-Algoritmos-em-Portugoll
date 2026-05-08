@@ -1,0 +1,1 @@
+# trabalho-Segundo-Bimestre---Atividade-1---Interpreta-o-de-Algoritmos-em-Portugoll
